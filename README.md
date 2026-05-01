@@ -50,9 +50,9 @@ Upload your resume, get AI-powered improvement suggestions
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: [linkedin.com/in/sai-yashwanth-552297316](https://www.linkedin.com/in/sai-yashwanth-552297316)
+- 💼 LinkedIn: https://www.linkedin.com/in/syfulla-shaik18/
 - 📧 Email: Syfuyt420@gmail.com
-- 📍 Location: Nellore, Andhra Pradesh, India
+- 📍 Location: Tirupati, Andhra Pradesh, India
 
 ---
 
